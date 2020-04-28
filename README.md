@@ -3,7 +3,7 @@
 2. Une diva, un microphone.
 3. Écoutez avec intérêt.
 4. Intervenez, puis cédez la parole.
-5. Nobody knows everything, together we know a lot.
+5. Personne ne sait tout, ensemble on sait beaucoup.
 
 # Group norms
 1. Trust the process.
